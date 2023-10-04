@@ -12,6 +12,4 @@ A self-introduction.
 虽然说学习当然是越多越好，但我最希望学习到更多有关建模以及3D动画制作、场景渲染等知识，并且通过这个平台接触到更多的比赛竞赛，有更多展示自己的机会。同时能将学到的知识运用到我自己作为爱好的作品世界观当中，将我的作品展现出更完整的姿态。
 
 # 多多考虑我哦!
-![送给你们！](![微信图片_20231004190537](https://github.com/Kisekiww/ZengXinyi_414join/assets/146928310/26a598d3-4e40-472c-8780-ba214cc7c868)
-)
-
+![送给你们！](https://github.com/Kisekiww/ZengXinyi_414join/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20231004190537.jpg?raw=true)
