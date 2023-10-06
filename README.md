@@ -13,3 +13,7 @@ A self-introduction.
 
 # 多多考虑我哦!
 ![送给你们！](https://github.com/Kisekiww/ZengXinyi_414join/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20231004190537.jpg?raw=true)
+
+# 我的附加题作答在这里！
+虽然想要学习的方向是建模渲染类，但是考虑到自己的能力还是选择了绘画作品作为我的代表作品。
+！[灵感创作]
