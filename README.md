@@ -16,4 +16,7 @@ A self-introduction.
 
 # 我的附加题作答在这里！
 虽然想要学习的方向是建模渲染类，但是考虑到自己的能力还是选择了绘画作品作为我的代表作品。
-！[灵感创作]
+(
+这两张数字绘画（就是所谓板绘）人物原型为彩虹社旗下的虚拟主播阿萨Aza,灵感来源都是在他直播游戏时游戏的风格给我带来的直观感受，我会幻想如果他是这个游戏的主角并且融入游戏场景中会是什么样
+！[灵感创作](https://github.com/Kisekiww/ZengXinyi_414join/blob/main/QQ%E5%9B%BE%E7%89%8720231006150347.jpg?raw=true)
+![灵感创作2](https://github.com/Kisekiww/ZengXinyi_414join/blob/main/QQ%E5%9B%BE%E7%89%8720231006150325.jpg?raw=true)
